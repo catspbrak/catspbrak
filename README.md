@@ -11,7 +11,7 @@
 
 <p align="center"> ᡣ𐭩 : it, modnation racers, littlebigplanet, stranger things, yellowjackets, black phone, alot more
 
-<p align="center"> ^^^ int if u like any of these PLS! 
+<p align="center"> ⤴︎ int if u like any of these PLS! 
 
 <p align="center"> dni : under 15, proship/fic, endos, propara, tcc or support/are neutral on any of these , i block freely 
 
