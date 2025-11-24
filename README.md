@@ -13,6 +13,6 @@
 
 <p align="center"> ⤴︎ int if u like any of these PLS! 
 
-<p align="center"> dni : under 15, proship/fic, endos, propara, tcc or support/are neutral on any of these , i block freely 
+<p align="center"> dni : under 15, proship/fic, endos, propara, tcc or support/are neutral on any of these , i block freely , don't be weird
 
 <p align="center"> https://kaspbrak.atabook.org/
