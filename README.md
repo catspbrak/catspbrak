@@ -9,7 +9,7 @@
 
 <p align="center">  do not copy + c+h is ok !  w2i always , i'm likely offtab ,  please feel free to talk to me though :-) !!
 
-<p align="center"> ᡣ𐭩 : it, modnation racers, littlebigplanet, stranger things, yellowjackets, black phone, alot more
+<p align="center"> ᡣ𐭩 : it, modnation racers, littlebigplanet, stranger things, saw '04, yellowjackets, black phone, alot more
 
 <p align="center"> ⤴︎ int if u like any of these PLS! 
 
