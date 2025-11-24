@@ -15,4 +15,6 @@
 
 <p align="center"> dni : under 15, proship/fic, endos, propara, tcc or support/are neutral on any of these , i block freely 
 
+<p align="center"> i'm taken don't be odd
+
 <p align="center"> https://kaspbrak.atabook.org/
